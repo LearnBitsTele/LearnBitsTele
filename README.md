@@ -1,0 +1,6 @@
+- 👋 Hola, I’m Ddraig Welsh - The breast dragon
+- 🐕 I'm the admin of @LearnBits channel in telegram.
+- 🦄 In here ,i will share every coding project that i use in LearnBits channel , with you.
+- 🇱🇰 I'm a sri lankan
+- 👦 And i'm still educating to be a..... (a secret , But no ! not a programmer or anything)
+- 💕 Looking forward to work these projects...
